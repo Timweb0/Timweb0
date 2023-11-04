@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...node.js Aws
 - 🌱 I’m currently learning ...Python
 - 💞️ I’m looking to collaborate on ... JASON and Rubyrails
-- 📫 How to reach me ... https://web.facebook.com/help/239070709801747/?helpref=uf_share
+- 📫 How to reach me ... https://web.facebook.com/hhbndjjkks.chhdjdkxkdicy.1/
 - 
 
 <!---
